@@ -1,1 +1,0 @@
-# bongard-academie-commerciale
